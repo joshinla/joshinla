@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @joshinla IT professional working in retail IT field
+- 👋 Hi, I’m @joshinla IT Professional & Field Technician
 - 👀 I’m interested in ...Computer's, Gaming, A+, Networking, Traveling,Technology 
 - 🌱 I’m currently learning ... Cisco Meraki
 - 💞️ I’m looking to collaborate on ...
